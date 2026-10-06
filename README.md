@@ -218,4 +218,4 @@ Mirrors of Albion is offered as a full free version with all features and update
 Don't miss out on the adventure! Download **Mirrors of Albion** today and uncover the mysteries of Victorian London!
 
 ---
-**Last updated:** 2026-10-06 11:43:04 UTC
+**Last updated:** 2026-10-06 17:49:26 UTC
